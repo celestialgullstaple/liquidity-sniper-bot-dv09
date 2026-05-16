@@ -1,4 +1,4 @@
-# 
+# Get the ultimate liquidity sniper bot with quantitative Liquidity Bot for liquidity sniper bot | snipe-list-management & degen-coin-scanning. Featuring snipe-list-management and
 
 
 
